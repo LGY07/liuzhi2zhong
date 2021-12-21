@@ -3,6 +3,8 @@
 
 [六枝特区第二中学.退学.com](https://六枝特区第二中学.退学.com)
 
+[备用](https://lgy07.github.io/liuzhi2zhong)
+
 有趣的域名来源：dns.1919810.com
 
 此网页为玩笑，请勿举报政教处
